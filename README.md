@@ -18,11 +18,4 @@ BZx6PkwScKaypmDQGjiitry7bW1EetgwCRFoLcY2m9sW
 
 # Contact Info
 
-https://www.quangvietdnbg.com/
-
-
-
-https://t.me/quangvietdnbg
-
-Alt:
 https://t.me/alan_cousin
