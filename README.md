@@ -19,3 +19,9 @@ BZx6PkwScKaypmDQGjiitry7bW1EetgwCRFoLcY2m9sW
 # Contact Info
 
 https://t.me/alan_cousin
+
+
+# Partner
+https://quangvietdnbg.com
+prefered from https://t.me/topchrys
+
