@@ -21,7 +21,3 @@ BZx6PkwScKaypmDQGjiitry7bW1EetgwCRFoLcY2m9sW
 https://t.me/alan_cousin
 
 
-# Partner
-https://quangvietdnbg.com
-prefered from https://t.me/topchrys
-
